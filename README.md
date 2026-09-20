@@ -1,0 +1,2 @@
+# forBadDecisionsCapital
+forBadDecisionsCapital
